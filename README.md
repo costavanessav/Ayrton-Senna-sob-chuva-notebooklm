@@ -47,4 +47,4 @@ O resultado consolidado da pesquisa está disponível no arquivo
 
 ## Autora
 
-Vanessa Veronica Costa Santos
+Vanessa Costa 
