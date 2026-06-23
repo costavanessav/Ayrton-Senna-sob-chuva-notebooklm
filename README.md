@@ -45,6 +45,6 @@ O resultado consolidado da pesquisa está disponível no arquivo
 - GitHub
 - Microsoft Word
 
-## Vanessa
+## Autora
 
 Vanessa Veronica Costa Santos
